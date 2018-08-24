@@ -1,1 +1,3 @@
 # Wallpapers-Pack
+Un pack complet de wallpapers divers
+Liste qui sera mis a jour tous au long de l'année ....
